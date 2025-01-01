@@ -1,1 +1,3 @@
 # Sadat-Bin-Shahid
+Project Title : Innovative Plastic Waste Management: Utilization in Road Construction and Sustainable Applications
+The methodology for innovative plastic waste management involves a series of systematic steps to ensure eco-friendly and sustainable utilization in road construction and other applications. The process begins with the collection and segregation of plastic waste from various sources, followed by washing, shredding, and quality control to prepare the material for reuse. Shredded plastic is then used to develop plastic-modified bitumen (PMB) or as partial replacements for natural aggregates in concrete and asphalt.....
